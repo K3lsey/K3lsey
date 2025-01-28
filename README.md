@@ -4,3 +4,13 @@
 - A (somewhat) fun fact about myself is that I have four other siblings!
 - Currently, my favorite class is art!
 - Lastly, I really **REALLY** love Arcane! ^_^
+
+
+##My Favorites
+1. Color: Purple
+2. Number: 15
+3. Ice Cream Flavor: Blue Bell's Krazy Kookie Dough
+4. Book: *Night* by Eli Wiesel
+5. Holiday: Christmas
+6. Video game(s): God of War, The Last of Us, Overwatch, Dishonored, and Resident Evil Village
+7. Show: Arcane and Mindhunter. 
