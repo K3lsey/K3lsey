@@ -6,7 +6,7 @@
 - Lastly, I really **REALLY** love Arcane! ^_^
 
 
-##My Favorites
+## My Favorites
 1. Color: Purple
 2. Number: 15
 3. Ice Cream Flavor: Blue Bell's Krazy Kookie Dough
